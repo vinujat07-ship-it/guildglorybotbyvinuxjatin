@@ -1,0 +1,2 @@
+# guildglorybotbyvinuxjatin
+GUILD GLORY BOT 
